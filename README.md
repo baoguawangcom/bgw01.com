@@ -1,6 +1,6 @@
-爆瓜网最新地址发布页 (本公告更新日期：2026/11/21）
+爆瓜网最新地址发布页 (本公告更新日期：2026/11/23）
 
-👋爆瓜网最新（免翻墙）地址：https://baogua53.com
+👋爆瓜网最新（免翻墙）地址：https://baogua54.com
 
 👋关注TG永不迷路！爆瓜网(Telegram)公告频道：https://telegram.me/bgw1com
 
@@ -10,7 +10,7 @@
 
 📫爆瓜网永久中转域名：https://baoguawang.com
 
-👋爆瓜网QQ粉丝群：https://www.kvlwnotoh.cc/t/ddptt5
+👋爆瓜网QQ粉丝群：https://www.zydjznect.cc/t/ddptt5
 
 失联后如何获取最新地址：
 方法一：邮箱发送任意邮件至爆瓜网官方邮箱可获取最新地址
