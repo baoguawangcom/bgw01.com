@@ -1,6 +1,6 @@
 爆瓜网最新地址发布页 (本公告更新日期：2026/11/23）
 
-👋爆瓜网最新（免翻墙）地址：https://baogua54.com
+👋爆瓜网最新（免翻墙）地址：https://baogua55.com
 
 👋关注TG永不迷路！爆瓜网(Telegram)公告频道：https://telegram.me/bgw1com
 
